@@ -10,3 +10,12 @@ From the beggining
 ------------------
 
 At this time Hische is more of an illustrator than a letter but she still had it in her works for University. There is one project that she can pin point were she started to realise that her path was lettering. This project was for her…. It was based of the Game Of Life which is a board game were you have to see how far you can get in life and you can get into funny situations. So with her idea she went for a ho
+
+What I like about Jessica is that she is trying to teach people about lettering and not keeping all the things that have made her sucssful to her self. I know this because I am taking part in her Skillshare class at the moment. She only has one but teaching takes time and she doesn't have much of it with being a freelance letterer and illustrator 
+
+
+
+What Do Designers bring to design?
+---------------------------------
+
+I nearly got mixed up and worte about another list of desingers that you had on the modules GitHub page. The reason that I bring this up is because I liked the question that you posed about the designers and so on. That question was what have they brought to the world of design. I have wrote about many projects that Jessica has done but the one thing that all designers and Jessica included bring the world of design is inspiration. Jessica has inspired so many people to find out what lettering is for themselfs, I know this first hand as she has helped me understand this is what I want to do an it will take time and effort but you can get there in the end. 
