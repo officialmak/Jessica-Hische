@@ -16,6 +16,15 @@ To get her self out there and for people to start realising that she had talent 
 What I like about Jessica is that she is trying to teach people about lettering and not keeping all the things that have made her sucssful to her self. I know this because I am taking part in her Skillshare class at the moment. She only has one but teaching takes time and she doesn't have much of it with being a freelance letterer and illustrator 
 
 
+One Drop Cap at a Time
+----------------------
+
+One of the biggest projects that Jessica has done was a project called The Daily Drop Cap. This is where she illustrates a drop cap of her choice in any manner she seems fit. Why this is her biggest project is because is brought her into the spot light. As soon as she relised this project to the public it went viral and everyone in the design world was talking about her and the project.
+
+
+Recently Jessica has worked with the amazing director Wes Anderson. I don't know is she actualy worked with him but she made the font that was used for the movie poster and even more recently she has turned it into a font which you can buy. This just shows how far you can come if you apply yourself to what you want to achive in life.
+
+
 
 What Do Designers bring to design?
 ---------------------------------
