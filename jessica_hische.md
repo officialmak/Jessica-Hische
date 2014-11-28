@@ -21,6 +21,8 @@ One Drop Cap at a Time
 
 One of the biggest projects that Jessica has done was a project called The Daily Drop Cap. This is where she illustrates a drop cap of her choice in any manner she seems fit. Why this is her biggest project is because is brought her into the spot light. As soon as she relised this project to the public it went viral and everyone in the design world was talking about her and the project.
 
+With this project getting so much spot light she has got work from it and one of the more important ones was with Penguin the book company. She collaborated with the art director at Penguin Paul Buckley to make to series of twenty-six hardcover edditions of the classic literature. I don't like to think things our perfect but these are down to the finest detail as I know what type of person Jessica is. As you can see below this is some of the covers and you can see why they are perfect, the level of detail that has went into them. I unfortantly havent read any of the books so I dont get some of the quirky things that tie into the story of the book. But look at the Moby-Dick cover and you can see the tails of the whale and the spear that tried to take it down.
+
 
 Recently Jessica has worked with the amazing director Wes Anderson. I don't know is she actualy worked with him but she made the font that was used for the movie poster and even more recently she has turned it into a font which you can buy. This just shows how far you can come if you apply yourself to what you want to achive in life.
 
