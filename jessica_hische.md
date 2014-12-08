@@ -36,6 +36,10 @@ As you can see below the image on the right is Ed Benguiat's Edwardian Script an
 
 You can see below the font that she created with this inspiration and knowledge of fonts from that era. Everything about the font is perfect in my eyes but that doesn't mean much. I like all the little nuances that the each individual letter had like the letter X for some reason the line that goes through it completes it and if it wasn't there I think it would look of in some way as on side looks heavier with more twirls in the serifs 
 
+A personal Touch
+----------------
+
+What amazes me about Jessica is how reall she is, well at least it seems that way. But through researching her and watching a good few videos that she hs been in I fell like I could talk to her for hours as I know she is into her movies and many other things which interest me. I know its not just me that fells this weird bond with her as she has a very big following which has all ways got her back. A she said in one video that people email her tellling her when a Daily Drop Cap gets used without permission. This is why I think that she has been so successful she just hasn't done amazing hand lettering and put that out there, she has put herself out there as well.
 
 
 What Do Designers bring to design?
