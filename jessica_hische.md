@@ -27,28 +27,46 @@ Now sense she has done this with the lettering she can give the illustration mor
 
 To get her self out there and for people to start realising that she had talent she made a set of promo card which had a Christmas theme to them. Se sent them out to a hand full of designers that the time and none apart from one got back to her. The person who got back to her was Louise Fili the renouwned graphic designer who focused on food packaging and restaurant identities. So this is were you see her passion for lettering grow exponentially as she took this oppertunity to learn all that she could, she spent all day and night working on letter for Louise. She then went home and worked one her skills by doing free lance work which helped her home in her skills.
 
-What I like about Jessica is that she is trying to teach people about lettering and not keeping all the things that have made her sucssful to her self. I know this because I am taking part in her Skillshare class at the moment. She only has one but teaching takes time and she doesn't have much of it with being a freelance letterer and illustrator 
+I was going to find a label that she has done with Fili bought before I could, I found one she has done sense leaving her mentor. 
+
+It is known that every artist has something that they are good at/ known for and for Jessica it is ribbon type. This is her forte as she does it continuality in side projects and now she is getting clients from it. With ribbons being the thing she is known for she only gets to do it for a few months then it goes out of style as ribbons are quite Christmassy. She gets most work/projects containing ribbons from the end of August to early January and then its good by ribbons for another year.
+
+What I like about Jessica is that she is trying to teach people about lettering and not keeping all the things that have made her successful to herself. I know this because I am taking part in her Skillshare class at the moment. She only has one but teaching takes time and she doesn't have much of it with being a freelance letterer and illustrator. It not even the fact that she is teaching she is her work, as she puts her personality into each piece and she is so open to everyone on the web.
 
 
 One Drop Cap at a Time
 ----------------------
 
-One of the biggest projects that Jessica has done was a project called The Daily Drop Cap. This is where she illustrates a drop cap of her choice in any manner she seems fit. Why this is her biggest project is because is brought her into the spot light. As soon as she relised this project to the public it went viral and everyone in the design world was talking about her and the project.
+One of the biggest projects that Jessica has done was a project called The Daily Drop Cap. This is where she illustrates a drop cap of her choice in any manner she seems fit. Why this is her biggest project, is because it brought her into the global spot light. As soon as she released this project to the public it went viral, everyone in the design world was talking about her and the project. 
 
-With this project getting so much spot light she has got work from it and one of the more important ones was with Penguin the book company. She collaborated with the art director at Penguin Paul Buckley to make to series of twenty-six hardcover edditions of the classic literature. I don't like to think things our perfect but these are down to the finest detail as I know what type of person Jessica is. As you can see below this is some of the covers and you can see why they are perfect, the level of detail that has went into them. I unfortantly havent read any of the books so I dont get some of the quirky things that tie into the story of the book. I have looked at the Mobby-Dick cover before and never realised the detail that went into it. When I look at the Moby-Dick cover now itis obviouies that the sarifs are tails of the whale. Then you have the spear that tried to take it down which adds flare to the whole piace and completes the illustration.
+This is one the many A's that she has done for the drop cap. This is one of the more classical style with staying inside the realms of the lettering world.
+
+image
+
+You then have ones like this here, if you can't see it is an N.
+
+image
+
+With this project getting so much spot light she has gotten work from it and one of the more important ones was with Penguin the book company. She collaborated with the art director at Penguin, Paul Buckley to make a series of twenty-six hardcover editions of the classic literature. I don't like to think things our perfect but these have been taken down to the finest detail as I know what type of person Jessica is and this is was her time to shine even brighter. As you can see below this is some of the covers and you can see why they are perfect at the level of detail that has went into them. I unfortunately haven't read any of the books so I don't get some of the quirky things that tie into the story of the book. I have seen the Moby-Dick cover before and never realised the detail that went into it. Now when I look at the Moby-Dick cover it is obvious that the serifs are tails of the whale. Then you have the spear that tried to take it down which adds flare to the whole piece and completes the illustration. This actually is the story of the book on the cover as well. As to me the M is representing the whale and the spar is raping around it closing in ever so slightly until it hits it mark. This is just one of the covers that has this level of thought into them and the rest are as brilliant in their own right.
 
 
-Recently Jessica has worked with the amazing director Wes Anderson. I don't know is she actualy worked with him but she made the font that was used for the movie poster and even more recently she has turned it into a font which you can buy. The movies that she made it for was Moonrise Kingdom which is a fantastic movie.The movie is based in the early 60's so one of the fonts that she was looking at as Ed Benguiat's Edwardian Script and her font is loosely based on it but she went more towards the style of title fonts from Chabrol films.
+Recently Jessica has worked with the amazing director Wes Anderson. I don't know is she actually worked with him but she made the font that was used for the movie poster and even more recently she has turned it into a font which you can buy. The movies that she made it for was Moonrise Kingdom which is a fantastic movie and the font suites if perfectly as Jessica took her time to research fonts to in the era of the movie. The movie is based in the early 60's so one of the fonts that she was looking at as Ed Benguiat's Edwardian Script and her font is loosely based on it but she went more towards the style of title fonts from Chabrol films.
 
 As you can see below the image on the right is Ed Benguiat's Edwardian Script and the one on the left is a typical a title font from a Chabrol film. I am very glad that she went in this direction as its much cleaner and suits the film but mostly even more so the director. 
 
+Image
+
 You can see below the font that she created with this inspiration and knowledge of fonts from that era. Everything about the font is perfect in my eyes but that doesn't mean much. I like all the little nuances that the each individual letter had like the letter X for some reason the line that goes through it completes it and if it wasn't there I think it would look of in some way as on side looks heavier with more twirls in the serifs 
+
+Image
+
 
 A personal Touch
 ----------------
 
-What amazes me about Jessica is how reall she is, well at least it seems that way. But through researching her and watching a good few videos that she hs been in I fell like I could talk to her for hours as I know she is into her movies and many other things which interest me. I know its not just me that fells this weird bond with her as she has a very big following which has all ways got her back. A she said in one video that people email her tellling her when a Daily Drop Cap gets used without permission. This is why I think that she has been so successful she just hasn't done amazing hand lettering and put that out there, she has put herself out there as well.
+What amazes me about Jessica is how real she is, well at least it seems that way. Through researching her and watching a good few videos that she has been in I feel like I could talk to her for hours as I know she is into her movies and many other things which interest me. I know it's not just me that fells this weird bond with her as she has a very big following which has all ways got her back. As she said in one video that people email her telling her when a Daily Drop Cap gets used without permission. This is why I think that she has been so successful she just hasn't done amazing hand lettering and put that out there, she has put herself out there as well.
 
+I could go on for pages longer and would be happy to do so as her work just amazes me with the level of thought that gets put into them to make each part work with each other to make something brilliant. 
 
 What Do Designers bring to design?
 ---------------------------------
