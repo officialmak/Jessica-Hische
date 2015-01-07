@@ -2,4 +2,4 @@
  
 This is an essay about the letterer and illustrator Jessica Hische
 
-[Jessica Hische](/jessica_hische_finial.html)
+[Jessica Hische](http://mrzackrox.github.io/john-baskerville/version-8-mine.html)
