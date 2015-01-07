@@ -26,6 +26,7 @@ H2
  padding-bottom: 10%;
  font-size: 3em;
  font-family: Helvetica;
+ color: #E85442;   
 }
 
 
@@ -33,7 +34,7 @@ p
 {
      line-height: 1.4em;
      margin-bottom: 10px;
-     color: #171B21;
+     color: #877978;
      font-size: 1.6em;
     font-family: Helvetica;
 }
@@ -67,5 +68,5 @@ img
 #tyle
 {
  padding-left: 60%;
- margin-top: -90%
+ margin-top: -85%
 }
