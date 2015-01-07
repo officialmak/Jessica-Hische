@@ -18,7 +18,7 @@ So at this time in her life she is still mainly an illustrator with a tiny bit o
 
 So this is another set of posters that she created for her university. We are now starting to see her controlling the poster with the lettering by using hierarchy. Doing this allows you to get what's important into the views vision quicker, in this case it the university name. Doing this also allows you to create a cool layout for the information to flow as you can see she has made "art" a quarter smaller. This allowed her to fit in more important information with out in taking away from the rest of the poster.
 
-<img src="/img/tyler_school_fall_open.png">
+<img src="/img/Tyler_school_fall_open.png">
 
  
 Now sense she has done this with the lettering she can give the illustration more room to breathe. What I like about this poster as well is the use of colour throughout the poster as it ties each part into each other. As you have the use of red in the title but it is used again in the paint brushes which tells the viewer that the school is to do with are as its in red as well. I also then like the use of white accenting the title as it leads you onto the smaller but still important information.
