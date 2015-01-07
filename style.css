@@ -34,7 +34,7 @@ p
 {
      line-height: 1.4em;
      margin-bottom: 10px;
-     color: #877978;
+     color: #706464;
      font-size: 1.6em;
     font-family: Helvetica;
 }
@@ -50,7 +50,7 @@ margin-right: auto;
 .drop
 {
  font-size: 5em;
- color: #CD1923;
+ color: #E85442;
 }
 
 img
@@ -69,4 +69,16 @@ img
 {
  padding-left: 60%;
  margin-top: -85%
+}
+
+a
+{
+  color:  #E85442;
+  text-decoration: none;
+}
+
+a:hover
+{
+ color: #CD1923;
+ text-decoration: none;
 }
