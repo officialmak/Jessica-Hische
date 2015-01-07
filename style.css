@@ -1,0 +1,21 @@
+/* This Resets All Styles */
+
+* {
+    hight: 100%;
+    margin: 0;
+    padding: 0;
+}
+
+p
+{
+     line-height: 1.4em;
+     margin-bottom: 10px;
+     color: #171B21;
+     font-size: 20px;
+}
+
+#main
+{
+ max-width: 800px;
+ min-width: 300px;   
+}
