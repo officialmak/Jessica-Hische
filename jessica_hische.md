@@ -12,14 +12,13 @@ At this time Jessica is more of an illustrator than a letter but she still used 
 
 This is the first piece that she has done sense graduating from university and this were you see Jessica's illustration style start to form. As you can see the poster a whole works in every way. Firstly you have the beautiful illustration of the flowers and the background which creates a visual difference for the type and flowers to sit on top of it. You then move onto the letter were each parts works to give the poster a unique and interesting look. I personal like really like the all the type but I like the weekend at the bottom the most as it has an ever ending fluidity to the lettering. 
 
-<img src="/img/tyle_school_of_art.jpg">
+<img src="/img/tyle_school_of_art.png">
 
 So at this time in her life she is still mainly an illustrator with a tiny bit of lettering in sprinkled in there. Though this is where you can all ready see her starting to play with the layout of the lettering to take the fell of the poster in different ways and it gives.
 
 So this is another set of posters that she created for her university. We are now starting to see her controlling the poster with the lettering by using hierarchy. Doing this allows you to get what's important into the views vision quicker, in this case it the university name. Doing this also allows you to create a cool layout for the information to flow as you can see she has made "art" a quarter smaller. This allowed her to fit in more important information with out in taking away from the rest of the poster.
 
-
-image
+<img src="/img/tyler_school_fall_open.png">
 
  
 Now sense she has done this with the lettering she can give the illustration more room to breathe. What I like about this poster as well is the use of colour throughout the poster as it ties each part into each other. As you have the use of red in the title but it is used again in the paint brushes which tells the viewer that the school is to do with are as its in red as well. I also then like the use of white accenting the title as it leads you onto the smaller but still important information.
@@ -41,24 +40,28 @@ One of the biggest projects that Jessica has done was a project called The Daily
 
 This is one the many A's that she has done for the drop cap. This is one of the more classical style with staying inside the realms of the lettering world.
 
-image
+<img src="/img/A.png">
 
 You then have ones like this here, if you can't see it is an N.
 
-image
+<img src="/img/N.png">
 
-With this project getting so much spot light she has gotten work from it and one of the more important ones was with Penguin the book company. She collaborated with the art director at Penguin, Paul Buckley to make a series of twenty-six hardcover editions of the classic literature. I don't like to think things our perfect but these have been taken down to the finest detail as I know what type of person Jessica is and this is was her time to shine even brighter. As you can see below this is some of the covers and you can see why they are perfect at the level of detail that has went into them. I unfortunately haven't read any of the books so I don't get some of the quirky things that tie into the story of the book. I have seen the Moby-Dick cover before and never realised the detail that went into it. Now when I look at the Moby-Dick cover it is obvious that the serifs are tails of the whale. Then you have the spear that tried to take it down which adds flare to the whole piece and completes the illustration. This actually is the story of the book on the cover as well. As to me the M is representing the whale and the spar is raping around it closing in ever so slightly until it hits it mark. This is just one of the covers that has this level of thought into them and the rest are as brilliant in their own right.
+With this project getting so much spot light she has gotten work from it and one of the more important ones was with Penguin the book company. She collaborated with the art director at Penguin, Paul Buckley to make a series of twenty-six hardcover editions of the classic literature. I don't like to think things our perfect but these have been taken down to the finest detail as I know what type of person Jessica is and this is was her time to shine even brighter. As you can see below this is some of the covers and you can see why they are perfect at the level of detail that has went into them. I unfortunately haven't read any of the books so I don't get some of the quirky things that tie into the story of the book. I have seen the Moby-Dick cover before and never realised the detail that went into it. Now when I look at the Moby-Dick cover it is obvious that the serifs are tails of the whale. Then you have the spear that tried to take it down which adds flare to the whole piece and completes the illustration. 
+
+<img src="/img/moby.png">
+
+This actually is the story of the book on the cover as well. As to me the M is representing the whale and the spar is raping around it closing in ever so slightly until it hits it mark. This is just one of the covers that has this level of thought into them and the rest are as brilliant in their own right.
 
 
 Recently Jessica has worked with the amazing director Wes Anderson. I don't know is she actually worked with him but she made the font that was used for the movie poster and even more recently she has turned it into a font which you can buy. The movies that she made it for was Moonrise Kingdom which is a fantastic movie and the font suites if perfectly as Jessica took her time to research fonts to in the era of the movie. The movie is based in the early 60's so one of the fonts that she was looking at as Ed Benguiat's Edwardian Script and her font is loosely based on it but she went more towards the style of title fonts from Chabrol films.
 
 As you can see below the image on the right is Ed Benguiat's Edwardian Script and the one on the left is a typical a title font from a Chabrol film. I am very glad that she went in this direction as its much cleaner and suits the film but mostly even more so the director. 
 
-Image
+<img src="/img/femme.png"> <img src="/img/EdBenguiat.png">
 
 You can see below the font that she created with this inspiration and knowledge of fonts from that era. Everything about the font is perfect in my eyes but that doesn't mean much. I like all the little nuances that the each individual letter had like the letter X for some reason the line that goes through it completes it and if it wasn't there I think it would look of in some way as on side looks heavier with more twirls in the serifs 
 
-Image
+<img src="/img/jessica_font.png">
 
 
 A personal Touch
