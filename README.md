@@ -3,7 +3,7 @@ Jessica-Hische
 
 This is an essay about the illustrator and letter Jessica Hische.
 
-[Jessica Hische](http://mrzackrox.github.io/Jessica-Hische/Jessica.html)
+Essay about-[Jessica Hische](http://mrzackrox.github.io/Jessica-Hische/Jessica.html).
 
 I found most of the imformation one [Jessicas](http://jessicahische.is/) own website. I even got most of the images from here as well.
 
